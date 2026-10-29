@@ -1,2 +1,2 @@
 # Proyecto-Final-Semana-Tec
-Johan Ruiz -
+Johan Ruiz - Juan Jose Chavez - Isabella Real
